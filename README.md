@@ -1,7 +1,7 @@
 # 小狐狸破解版最新下载地址（2022年4月9日更新）
 
 ### 点击以下链接进入下载页：
-### [tbi5.xyz](https://tbi5.xyz/3526604)<br> 
+### [j7o6.xyz](https://j7o6.xyz/3526604)<br> 
 ### [3gki.xyz](https://3gki.xyz/3526604)<br>
 
 主播版下载地址 [is0p.xyz](http://is0p.xyz/3526604)
