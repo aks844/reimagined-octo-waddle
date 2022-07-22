@@ -1,14 +1,14 @@
-# 小狐狸破解版最新下载地址（2022年5月16日更新）
+# 小狐狸破解版最新下载地址（2022年7月22日更新）
 
 ### 点击以下链接进入下载页：
-### [zqzt](https://zqzt.xyz/3526604)<br> 
-### [08rc](https://08rc.xyz/3526604)<br>
+### [zqzt](https://yeg6.club/3526604)<br> 
+### [08rc](https://yen6.club/3526604)<br>
 
-主播版下载地址 [is0p.xyz](http://is0p.xyz/3526604)
+主播版下载地址 [is0p](https://ysk5.club/3526604)
 
 （观众下载无法使用）
 备用观众版下载地址如下<br>
-https://3fs4.xyz/3526604<br>
+https://ysk5.club/3526604<br>
 
 
 
